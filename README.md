@@ -17,6 +17,8 @@
 
 - 📫 How to reach me **mohanasundari7067@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/1--vcWAhmVDH0-VzuJMAZjFkNLI_6lXXn/view?usp=sharing](https://drive.google.com/file/d/1--vcWAhmVDH0-VzuJMAZjFkNLI_6lXXn/view?usp=sharing)
+
 - ⚡ Fun fact **“My favorite book is ‘The Hitchhiker’s Guide to the Galaxy’ by Douglas Adams. I once used one of my favorite quotes – ‘Don’t Panic’ – as my personal mantra during a spontaneous skydiving adventure. The idea of hurtling towards the Earth at terminal velocity might terrify most of us. But thanks to the wisdom of Arthur Dent and a parachute, I managed to survive the freefall with a towel in hand, just in case the galaxy needed saving along the way!”**
 
 <h3 align="left">Connect with me:</h3>
